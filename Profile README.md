@@ -7,4 +7,4 @@
 
 ## What I Hope to Learn
 I hope to learn to use digital devices, the internet, and online tools safely and effectively for learning, communication, and problem-solving.
-I hope to improve critical thinking, evaluate online information, protect privacy, and participate confidently in the digital worldevaluate online information, protect privacy, and participate confidently in the digital world
+I hope to improve critical thinking, evaluate online information, protect privacy, and participate confidently in the digital worldevaluate online information, protect privacy, and participate confidently in the digital world.
